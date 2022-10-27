@@ -1,4 +1,4 @@
-# <img src= "https://media1.giphy.com/media/KJmbSTSyIzetubNgJ5/giphy.gif?cid=ecf05e47q08rawgnv1pv9z3ml06kodrbtuh5p8ylzfjdakak&rid=giphy.gif&ct=s" alt= "Work Internet Sticker by YOODAcom" style= "width: 80px;"> Sophia Abuzeni 
+# <img src= "https://media1.giphy.com/media/KJmbSTSyIzetubNgJ5/giphy.gif?cid=ecf05e47q08rawgnv1pv9z3ml06kodrbtuh5p8ylzfjdakak&rid=giphy.gif&ct=s" alt= "Work Internet Sticker by YOODAcom" style= "width: 30px;"> Sophia Abuzeni 
 
 
 
