@@ -4,7 +4,7 @@
 
 **`Fullstack Software Engineer (MERN)`**
 
-I am currently a Senior at the University of North Florida where I am majoring in Information Science and minoring in Digital Marketing. I plan to graduate in May 2023. I have excelled in the study of Information Science and plan to continue to do so in my last two years. Full stack Software Engineer is what I want to make of my career.
+I am currently a Senior at the University of North Florida where I am majoring in Information Science and minoring in Digital Marketing. I plan to graduate in May 2023. I have excelled in the study of Information Science and plan to continue to do so in my last year. Full stack Software Engineer is what I want to make of my career.
 
 ---
 
